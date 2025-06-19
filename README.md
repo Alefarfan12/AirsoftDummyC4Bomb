@@ -2,5 +2,4 @@ In this space you are going to find the more easy dummy airsoft bomb for play 2 
 
 
 
-![image alt](https://github.com/Alefarfan12/AirsoftDummyC4Bomb/blob/main/IMG20250308225726.jpg)
 https://youtu.be/ltqXX8cxBqA
